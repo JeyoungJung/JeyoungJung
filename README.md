@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JeyoungJung
+- 👋 Hi, I’m Jay!
 - 👀 I’m interested in blockchain, keyboards, and web developing
 - 🌱 I’m currently learning more about blockchain
 - 💞️ I’m looking to collaborate on anything really!
